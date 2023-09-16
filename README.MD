@@ -3,6 +3,7 @@
 永久入口(支持海外)：https://aikanmei.com
 
 最新入口(不支持海外)：https://aikanmei001.com
+最新入口(不支持海外)：https://aikanmei002.com
 
 ******************
 
