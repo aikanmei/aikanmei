@@ -1,9 +1,9 @@
 获取我们的最新网址
 
-永久入口(支持海外)：https://aikanmei.com
+永久入口：https://aikanmei.com
 
-最新入口(不支持海外)：https://aikanmei001.com  
-最新入口(不支持海外)：https://aikanmei002.com
+备用入口：https://aikanmei001.com  
+备用入口：https://aikanmei002.com
 
 ******************
 
